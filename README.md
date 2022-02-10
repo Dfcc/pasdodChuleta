@@ -1,0 +1,2 @@
+# pasdodChuleta
+pasos a seguir
